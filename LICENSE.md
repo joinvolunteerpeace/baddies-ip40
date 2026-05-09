@@ -1,4 +1,4 @@
-
+Experience baddies like never before with baddies rare Scripts, the #1 Script. Includes unlimited stamina and auto-upgrade for unbeatable performance.
 
 
 
